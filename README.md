@@ -1,0 +1,2 @@
+# pasarkhande
+آموزش بازی
